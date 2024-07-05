@@ -1,9 +1,28 @@
-<p>&nbsp;</p>
-<p><a href="https://harikakanatlar.com/jett/" target="_blank" rel="noopener">Jett&nbsp;</a>: d&uuml;nyayı dolaşmayı seven ve her zaman bir sonraki ziyaret edeceği yeri d&ouml;rt g&ouml;zle&nbsp;bekleyen&nbsp;k&uuml;&ccedil;&uuml;k kırmızı ve beyaz bir u&ccedil;ak.&nbsp;&Ccedil;alışmaları, d&uuml;nyanın her yerindeki &ccedil;ocuklara paket teslim etmekten ibarettir.&nbsp;Paketler, &ccedil;ocukların yapmaya &ccedil;alıştıkları bir etkinliği başarmaları veya hayallerini ger&ccedil;ekleştirmeleri i&ccedil;in ihtiya&ccedil; duydukları bir veya daha fazla &ouml;ğeyi i&ccedil;erir.&nbsp;&Ccedil;ocuklardan bazıları doğumdan &ouml;nce ismini biliyor ama &ccedil;oğu onu ilk kez g&ouml;rd&uuml;klerinde &ccedil;ok şaşırıyor.&nbsp;Onun sembol&uuml; stilize edilmiş bir u&ccedil;ak kanadı.</p>
-<p><br />Jimbo&nbsp;: Havaalanında &ccedil;alışan tek insan ve bunun y&ouml;netmeni ve ana trafik kontrol&ouml;r&uuml;.&nbsp;Her b&ouml;l&uuml;m&uuml;n başında, teslimat hakkında bilgi vermek i&ccedil;in havaalanı hoparl&ouml;r&uuml;nden havaalanı kontrol odasına Jett'i &ccedil;ağırıyor.&nbsp;Bilgilerini her zaman teslim etmeyi talep eden &ccedil;ocuğun adını, i&ccedil;inde bulunduğu &uuml;lkenin adını ve yerini ve orada konuşulan dilin adını i&ccedil;erir.&nbsp;Genellikle manzarayı, anıtları ve muhtemelen orada yaşayan hayvanları anlatır.&nbsp;Jett gitmeden kısa bir s&uuml;re &ouml;nce, kendisine b&ouml;l&uuml;m&uuml;n odaklandığı &uuml;lkede konuşulan dilde bir ya da iki kelime &ouml;nermektedir.</p>
-<p><br /><a href="https://harikakanatlar.com/donnie/" target="_blank" rel="noopener">Donnie&nbsp;</a>: sarı bir Canadair u&ccedil;ağı, ancak daha kısa kanatlara ve daha k&uuml;&ccedil;&uuml;k pervanelere sahip olan ger&ccedil;ek Canadair u&ccedil;aklarına kıyasla daha eğlenceli bir g&ouml;r&uuml;n&uuml;me sahip.&nbsp;Hasar g&ouml;rm&uuml;ş veya tahrip olmuş nesneleri tamir etmenin yanı sıra &ccedil;ok &ccedil;eşitli şeyler yapma konusunda da yetenekli.&nbsp;T&uuml;m <a href="https://harikakanatlar.com/" target="_blank" rel="noopener">Harika Kanatlar</a> arasında, Jett'e en &ccedil;ok yardım eden oydu.&nbsp;Jimbo, alet setinin durumu kurtarabileceği zaman Donnie'nin en iyi se&ccedil;im olduğunu biliyor.&nbsp;Her zaman k&ouml;t&uuml; bir şekilde inen, &ccedil;eşitli nesnelere &ccedil;arpan ve / veya yere &ccedil;arpan, ancak her zaman tamamen yaramaz hale gelen tek S&uuml;per Kanattır.&nbsp;Onun sembol&uuml; stilize bir anahtardır.</p>
-<p><br />Jerome&nbsp;: Mavi ışıklı savaş u&ccedil;ağı, sarı şimşek &uuml;zerine s&uuml;slemeler olarak yanıp s&ouml;ner.&nbsp;Jett ile yarışmayı ve sahne almayı sever.&nbsp;Danstan dubl&ouml;rlere u&ccedil;maya, sirk g&ouml;sterilerine kadar uzanan &ccedil;eşitli sergilerde &ccedil;ok tecr&uuml;belidir.&nbsp;Yeteneklerine de olduk&ccedil;a g&uuml;veniyor ve &ccedil;ok yakışıklı olduğunu ve &ccedil;ok iyi bir g&uuml;l&uuml;msemesi olduğunu belirtiyor.&nbsp;Sanatsal beceriler bir yana, aynı zamanda S&uuml;per Kanatların en hızlısı ve &ccedil;ok keskin bir g&ouml;r&uuml;ş&uuml; var.&nbsp;"Boonying's Bath" b&ouml;l&uuml;m&uuml;nde, Jett'in &ccedil;alışmalarının nasıl olduğunu g&ouml;rmek i&ccedil;in paketi teslim etmek &uuml;zere Jett'in yerine gider.&nbsp;Onun sembol&uuml; stilize bir aydınlatma.</p>
-<p><br /><a href="https://harikakanatlar.com/paul/" target="_blank" rel="noopener">Paul&nbsp;</a>: Bir polis aracının karakteristik renklerine sahip bir polis u&ccedil;ağı.&nbsp;Siparişi havaalanında tutar ve bazen havaalanı trafiğini y&ouml;nlendirir.&nbsp;Her zaman havaalanında bir şeyler yanlış olduğunda m&uuml;dahale eder.&nbsp;İpu&ccedil;larını bulma ve takip etme konusunda &ccedil;ok yetenekli ve bu y&uuml;zden Jimbo, problemi &ccedil;&ouml;zmek i&ccedil;in bu t&uuml;r yetenekler gerektiğinde onu Jett'in yardımına g&ouml;nderiyor.&nbsp;Onun simgesi bir şerifin yıldızı.</p>
-<p><br />Mira&nbsp;: Suyu &ccedil;ok seven yeşil ve beyaz tamamen dalgı&ccedil; bir u&ccedil;ak.&nbsp;Şekli belli belirsiz bir denizaltınınkine benziyor.&nbsp;Jimbo, nesneleri almak ya da ortaya &ccedil;ıkan sorunu &ccedil;&ouml;zmek i&ccedil;in su altı canlılarıyla uğraşmak i&ccedil;in b&uuml;y&uuml;k derinliğe dalmak i&ccedil;in su altında ya da su altında seyahat etmesi gerektiğinde onu se&ccedil;er.&nbsp;Sembol&uuml; d&ouml;rt kanatlı bir tekne pervanesi.</p>
-<p><br />Roy&nbsp;: Her zaman acelesi olan ve havalimanındaki yolculara bavul ve &ccedil;antalar teslim etmekle meşgul olan bir bagaj &ccedil;ekicisi.&nbsp;U&ccedil;mayı &ccedil;ok istiyor ve b&uuml;y&uuml;y&uuml;nce ger&ccedil;ek bir tren haline gelmeyi hayal ediyor.&nbsp;"&nbsp;Santorini Choo Choo&nbsp;"&nbsp;b&ouml;l&uuml;m&uuml;nde&nbsp;, havaalanından ilk kez ayrıldı.</p>
-<p><br />Big Wing&nbsp;: B&uuml;y&uuml;k bir jumbo yolcu u&ccedil;ağı, arkadaş canlısı ve sakin.&nbsp;&Ccedil;ok ağır ve o kadar g&uuml;&ccedil;l&uuml; ki Dizzy, Donnie, Jerome ve Jett&rsquo;e karşı hi&ccedil; bir yardım almadan savaş oyunu kazanabiliyor.&nbsp;B&uuml;y&uuml;kl&uuml;ğ&uuml;ne rağmen,&nbsp;Viking Voyage'da&nbsp;g&ouml;r&uuml;ld&uuml;ğ&uuml; gibi hamsterlardan korkuyor&nbsp;.&nbsp;"&nbsp;U&ccedil;uş Hayranları&nbsp;"&nbsp;b&ouml;l&uuml;m&uuml;nde&nbsp;Jimbo&nbsp;ile birlikte ilk kez havaalanından ayrıldı&nbsp;ve aslında bu sefer S&uuml;per Kanat yardımcılarının rol&uuml;n&uuml; kapsıyor.</p>
+import numpy as np
+from sklearn import datasets
+from sklearn.model_selection import train_test_split
+from sklearn.linear_model import LogisticRegression
+from sklearn.metrics import accuracy_score
+
+# Iris veri setini yükle
+iris = datasets.load_iris()
+X = iris.data
+y = iris.target
+
+# Veriyi eğitim ve test setlerine böl
+X_train, X_test, y_train, y_test = train_test_split(X, y, test_size=0.3, random_state=42)
+
+# Lojistik regresyon modelini oluştur ve eğit
+model = LogisticRegression(max_iter=200)
+model.fit(X_train, y_train)
+
+# Test verisi üzerinde tahmin yap
+y_pred = model.predict(X_test)
+
+# Modelin doğruluğunu hesapla
+accuracy = accuracy_score(y_test, y_pred)
+print(f"Modelin doğruluğu: {accuracy:.2f}")
+
+# Bazı tahmin örnekleri göster
+for i in range(5):
+    print(f"Gerçek: {y_test[i]}, Tahmin: {y_pred[i]}")
